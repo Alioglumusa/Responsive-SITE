@@ -1,2 +1,2 @@
 # -Responsive-SITE1-
-Responsive
+https://alioglumusa.github.io/-Responsive-SITE1-/
